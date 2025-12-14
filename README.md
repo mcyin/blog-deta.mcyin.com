@@ -1,1 +1,1 @@
-# blog-deta.mcyin.cc
+# blog-deta.mcyin.com
